@@ -1,0 +1,1 @@
+# Battery-Limit-Script-for-Linux-Mint---Protect-Your-Laptop-Battery-Health
